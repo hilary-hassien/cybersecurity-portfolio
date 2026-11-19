@@ -9,3 +9,6 @@ My biggest highlight was the people I competed with in the Team Game. Over the c
 That experience reinforced something I see in my day-to-day work as well: security is a team effort. When everyone brings their own strengths and stays engaged, the group can solve far more than any one person could alone. 
 Going into the NCL games, I had a mild case of senioritis, along with new-mom burnout, sleep deprivation, and new-job jitters. Working alongside such a motivated team reenergized me and reminded me why I chose this path. I came out of the season with renewed drive to finish strong and continue building a meaningful career. 
 
+
+<img width="1378" height="1304" alt="image" src="https://github.com/user-attachments/assets/3d078d98-610d-471f-bd13-5389bd8a91f8" />
+
